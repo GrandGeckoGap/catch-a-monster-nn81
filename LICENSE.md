@@ -1,4 +1,4 @@
-
+catch a monster secret Script offers the most advanced catch a monster Script, with one-hit kill and auto-sell. Perfect for dominating any match.
 
 
 
